@@ -8,5 +8,3 @@
 8. Mistakes are opportunities for growth, not signs of failure. Discover how "The Art of Imperfection" can help you reframe your mindset and achieve your full potential. #growthmindset #personaldevelopment
 9. Want to cultivate a more compassionate, forgiving attitude towards yourself and others? "The Art of Imperfection" offers practical tips and techniques for living with more grace and acceptance. #selfcompassion #forgiveness
 10. Life is messy, but that's what makes it beautiful. Learn how to embrace imperfection and find joy in life's imperfections with "The Art of Imperfection." #mindfulness #imperfectionisbeauty
-
-
