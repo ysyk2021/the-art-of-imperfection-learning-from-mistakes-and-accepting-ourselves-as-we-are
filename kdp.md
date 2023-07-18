@@ -10,7 +10,6 @@ By learning from mistakes and accepting ourselves as we are, we can unlock our f
 
 Whether you're struggling with self-doubt and perfectionism or simply looking to live a more authentic and fulfilling life, "The Art of Imperfection" is an essential read. By embracing our imperfections and learning from our mistakes, we can tap into our true potential and lead happier, more meaningful lives.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
