@@ -44,5 +44,3 @@ The Freedom of Self-Expression
 ------------------------------
 
 Open communication and honest expression grant us the freedom to be our authentic selves. By embracing vulnerability, practicing active listening, and cultivating self-reflection, we can foster deeper connections, promote personal growth, and enhance self-acceptance. Remember that open communication starts with ourselves---it is only when we are honest with ourselves that we can genuinely communicate with others.
-
-*Note: The subsequent chapters of this book will explore additional strategies and exercises that will help you practice open communication and honest expression in different areas of your life, including relationships, work, and self-reflection.*

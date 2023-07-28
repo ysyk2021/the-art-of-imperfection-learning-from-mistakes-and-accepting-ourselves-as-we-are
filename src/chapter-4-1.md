@@ -56,4 +56,3 @@ Embracing Imperfection
 
 Changing our mindset towards mistakes involves embracing imperfection. By acknowledging that mistakes are stepping stones to growth, cultivating a growth mindset, and practicing self-compassion, we can change our perspective on mistakes. Embracing imperfection creates an environment conducive to self-acceptance, personal growth, and lifelong learning.
 
-*Note: The subsequent chapters of this book will explore additional techniques and exercises to help you incorporate these strategies into your daily life, empowering you to view mistakes as transformative experiences.*
