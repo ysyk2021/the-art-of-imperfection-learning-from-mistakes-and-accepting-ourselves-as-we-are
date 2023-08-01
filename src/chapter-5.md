@@ -18,11 +18,6 @@ Cultivating an Optimistic Outlook
 
 Cultivating an optimistic outlook is also important in building resilience. This means focusing on our strengths and achievements, rather than dwelling on our failures and mistakes. By cultivating an optimistic outlook, we can approach challenges with greater positivity and resilience.
 
-Taking Action Towards Our Goals
--------------------------------
-
-Taking action towards our goals is another important aspect of building resilience. This means setting goals and taking steps towards achieving them, even if they are small. By taking action, we can build momentum and develop greater confidence and resilience.
-
 Conclusion
 ----------
 

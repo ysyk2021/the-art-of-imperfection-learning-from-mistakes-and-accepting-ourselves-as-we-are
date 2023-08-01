@@ -13,9 +13,6 @@ Whether you're struggling with self-doubt and perfectionism or simply looking to
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
-
-Sure, here are 20 Amazon search keywords related to "The Art of Imperfection: Learning from Mistakes and Accepting Ourselves as We Are":
-
 1. Self-acceptance
 2. Personal development
 3. Mindfulness
