@@ -1,5 +1,3 @@
-Challenging Self-Defeating Thoughts and Beliefs
-========================================================
 
 In this chapter, we will explore the importance of challenging self-defeating thoughts and beliefs as a means of embracing imperfection and fostering self-acceptance. We will delve into how these negative thought patterns can hinder personal growth and provide practical strategies for identifying and transforming them.
 

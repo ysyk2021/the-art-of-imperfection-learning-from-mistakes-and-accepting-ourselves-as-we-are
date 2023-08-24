@@ -1,5 +1,3 @@
-Chapter 1: The Beauty of Imperfection
-=====================================
 
 Embracing imperfection as a natural part of life
 ------------------------------------------------

@@ -1,5 +1,3 @@
-Chapter 4: Building Resilience
-==============================
 
 Resilience is the ability to bounce back from setbacks and challenges, and it is an essential trait for personal growth and development. In this chapter, we will explore how to build resilience and use it to overcome setbacks and challenges.
 

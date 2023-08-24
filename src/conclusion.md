@@ -1,4 +1,4 @@
-# Conclusion
+
 
 Recapitulating the Importance of Embracing Imperfection
 -------------------------------------------------------

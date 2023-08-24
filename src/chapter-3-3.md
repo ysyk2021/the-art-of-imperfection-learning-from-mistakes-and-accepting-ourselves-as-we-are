@@ -1,5 +1,3 @@
-Practicing Self-Compassion and Self-Forgiveness
-========================================================
 
 In this chapter, we will explore the importance of practicing self-compassion and self-forgiveness as essential aspects of embracing imperfection and nurturing personal growth. We will delve into the transformative power of these practices and provide practical strategies for cultivating self-compassion and self-forgiveness in our lives.
 

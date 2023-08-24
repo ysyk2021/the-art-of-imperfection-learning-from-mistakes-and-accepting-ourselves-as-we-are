@@ -1,5 +1,3 @@
-Chapter 2: Overcoming Perfectionism
-===================================
 
 Perfectionism is a common trait that many people possess. While striving to do one's best can be a positive attribute, perfectionism can have negative effects on mental health and well-being. In this chapter, we will explore how to overcome perfectionism by understanding its negative effects on mental health, challenging self-defeating thoughts and beliefs, and practicing self-compassion and self-forgiveness.
 

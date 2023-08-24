@@ -1,5 +1,3 @@
-Chapter 6: Embracing Change
-===========================
 
 Change is a constant in life. Whether it's a new job, a move to a new city, or a major life event, change can be exciting and scary at the same time. In this chapter, we will explore how to embrace change and find purpose and meaning in it.
 

@@ -1,5 +1,3 @@
-Changing Our Mindset Towards Mistakes
-==============================================
 
 In the journey of self-acceptance and personal growth, our mindset towards mistakes plays a crucial role. Our attitude towards mistakes determines whether we view them as failures or as valuable learning opportunities. This chapter explores the importance of changing our mindset towards mistakes and provides strategies to embrace them as catalysts for growth and self-improvement.
 

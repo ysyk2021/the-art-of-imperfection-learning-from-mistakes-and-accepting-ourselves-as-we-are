@@ -1,5 +1,3 @@
-Understanding the Negative Effects of Perfectionism on Mental Health and Well-being
-============================================================================================
 
 Perfectionism is often praised as a desirable trait, associated with high standards and achievement. However, the relentless pursuit of perfection can have detrimental effects on mental health and overall well-being. In this chapter, we will explore the negative impact of perfectionism and its relationship to mental health.
 

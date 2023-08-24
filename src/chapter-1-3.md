@@ -1,5 +1,3 @@
-Setting Goals for Learning from Mistakes and Embracing Imperfection
-============================================================================
 
 In this chapter, we will explore the importance of setting goals focused on learning from mistakes and embracing imperfection. We will discuss how goal-setting can facilitate personal growth, enhance self-acceptance, and empower us to navigate challenges with resilience and self-compassion.
 

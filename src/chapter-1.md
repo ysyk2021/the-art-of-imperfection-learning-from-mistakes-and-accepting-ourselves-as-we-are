@@ -1,5 +1,3 @@
-Introduction
-============
 
 In this book, we will explore the concept of imperfection and how learning from mistakes and accepting ourselves as we are can lead to a more fulfilling life.
 
