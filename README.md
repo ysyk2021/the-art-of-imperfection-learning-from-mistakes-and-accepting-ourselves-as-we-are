@@ -1,3 +1,6 @@
+# The Art of Imperfection: Learning from Mistakes and Accepting Ourselves as We Are
+
+Book Link: [https://zhengpublishing.com/the-art-of-imperfection-learning-from-mistakes-and-accepting-ourselves-as-we-are/](https://zhengpublishing.com/the-art-of-imperfection-learning-from-mistakes-and-accepting-ourselves-as-we-are/)
 
 In today's world, the pressure to be perfect is everywhere. We're bombarded with images of perfection on social media, and we're often told that success and happiness can only be achieved through flawlessness. But what if imperfection is actually a key ingredient for personal growth and fulfillment?
 
